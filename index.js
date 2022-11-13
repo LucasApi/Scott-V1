@@ -1,7 +1,7 @@
 /*
 DEIXE OS CREDITOS MEU NOBRE 🗿🍷
 |-------------------------|
-|> CloverMods <|
+|> <|
 |________________|
 se inscreva no meu canal e deixa o like no video
 meta de 200 inscritos </>
